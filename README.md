@@ -14,6 +14,7 @@
 
 ☕ [Buy Me A Coffee](https://buymeacoffee.com/DaveGray)
 
+.
 🚀 Follow Me:
 
 - [Twitter](https://twitter.com/yesdavidgray)
